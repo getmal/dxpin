@@ -1,7 +1,7 @@
 # 119adc年龄确认进入芒果罗志祥5g
 的世界中寻一份恬静适淡得一份娴静祥娃
 
-👉/观/看/入/口👉http://www.baidu.com/link?url=9GtYscxq2JHtl4wpmtdwIAAxXmBlUXzKrLhK6E7cDRO&wd
+<a href="https://github.com/getmal/fdwwt/issues/2">👉👉👉♥♥点此进入♥观看入口👈👉👉</a>
 
 119adc年龄确认进入芒果罗志祥5g春天历来不会退席。流过寒冬，年年的春天都准期而至。没有什么不妨遏制春天的光临。
 	6、高考结束，不知道该干啥了，突然很丧，但好像不是因为考的不好。
